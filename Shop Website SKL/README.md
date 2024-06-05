@@ -1,3 +1,0 @@
-﻿# 2024-SKL
-
-Shop website SKL
